@@ -1,4 +1,4 @@
-# Ana Luiza Gomes Nunes:sunglasses:
+# Ana Luiza Gomes Nunes :sunglasses:
 
 Sou estudante de Sistemas de Informação, estou no 3º período. Tenho 21 anos, nos meus momentos livres gosto de assistir filmes, séries, ouvir música, ler, jogar vôlei, entre outros.
 
